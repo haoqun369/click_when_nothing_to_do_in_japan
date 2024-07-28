@@ -1,0 +1,1 @@
+# click_when_nothing_to_do_in_japan
